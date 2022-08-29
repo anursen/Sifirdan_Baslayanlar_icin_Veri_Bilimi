@@ -1,1 +1,12 @@
-# Sifirdan_Baslayanlar_icin_Veri_Bilimi Ders Notları
+# Sifirdan_Baslayanlar_icin_Veri_Bilimi
+
+
+
+
+
+
+
+
+
+
+
